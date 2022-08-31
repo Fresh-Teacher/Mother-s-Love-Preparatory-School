@@ -1,1 +1,1 @@
-# This repo is live at https://freshteacher.tech/Abongomola-Seed-secondary-school
+# This repo is live at https://freshteacher.tech/Mother-s-Love-Preparatory-School/
